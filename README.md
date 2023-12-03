@@ -2,9 +2,39 @@
 
 I know like 
 
-> scratch
-> python
-> smol bit C#
-> html
+ > scratch
+
+ > python
+
+ > smol bit C#
+
+ > html
 
 yes i make bad code bite me
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
