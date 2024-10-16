@@ -1,6 +1,6 @@
-### Hi i am The Mint Neco Arc :3 
+### Hi i am Lightmaxifrvr :3 
 
-I know like 
+I know like 1% of
 
  > scratch
 
